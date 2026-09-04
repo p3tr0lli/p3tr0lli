@@ -12,4 +12,4 @@ ___+ # ৻ꪆㅤ゛ ˎˊ˗___
 
 __𝑚𝑜𝑟𝑒 𝑜𝑓𝑡𝑒𝑛 𝑎𝑓𝑘__
 
-[♩ ♪ ♫ ♬ ]([[https://youtu.be/rgmcPdLWXHo?si=Egv-O9n2J3uIuq3z](https://youtu.be/vDjMMeeXcOM?si=dkKX-lumvTMA_634)](https://youtu.be/vDjMMeeXcOM?si=dkKX-lumvTMA_634))
+[♩ ♪ ♫ ♬ ](https://youtu.be/vDjMMeeXcOM?si=dkKX-lumvTMA_634)
